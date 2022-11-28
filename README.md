@@ -1,4 +1,5 @@
 Good day!
+
 I'm Lauro Atienza from the Phillipines. I am currently working with an international reserach center for rice and is currently taking up online course about web development on Refocus company.
 
 My hobbies include movie marathon on different channels such as netflix, Disney, and Prime video. I also love collecting stamps and miniature toy cars.
